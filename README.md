@@ -7,7 +7,7 @@
 
  💬 People ask me about my hobbies. Well, I'm a gamer Mom and an amateur shutterbug. I've been playing World of Warcraft since before it's first expansion, The Burning Crusade, was released. One day I'll make a point to share some of the photography I've done! 
 
- 📫 It's usually best to try and reach me through [email](trumbull.mom80@gmail.com) - at least for now.
+ 📫 It's usually best to try and reach me through [email](nicole.trumbull80@gmail.com) - at least for now.
 
 💥 Fun fact - I'm a Leo and an avid cat mom. We have several cats in our home, but my 2 babies include a flame lynx point Siamese named Sugar, and a silver tabby kitten named Alexander. All but 1 of our kitties are feral rescues that we've won over.
 
